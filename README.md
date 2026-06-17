@@ -1,3 +1,3 @@
 # Lista-
 Antônio Marcos Welinton Teixeira da Silvaa
-Raimunda Teixeira 
+David Ruan Pereira 
