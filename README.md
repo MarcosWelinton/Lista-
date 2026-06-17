@@ -1,3 +1,2 @@
 # Lista-
-Antônio Marcos Welinton Teixeira da Silva 
-David Ruan Pereira
+Antônio Marcos Welinton Teixeira da Silva
